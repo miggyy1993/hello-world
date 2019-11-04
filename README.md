@@ -1,2 +1,3 @@
 # hello-world
 just another repository
+my name is miggyy just here cuz i wanna learn code seems very interseting and has caught my attention for some time now! i am a deffinently a beginner and have no idea what i am doing....
